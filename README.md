@@ -23,8 +23,10 @@ So，Just show me your life & Show me the code & Show me your everything.借此�
 
 work 分类下书库为例：BIGRRBVLLH6AIELGNH7F63YTTQFDZGZAV
 
-卷 Windows 的文件夹 PATH 列表
-卷序列号为 98DD-ADCC
+
+
+
+
 C:.
 │  - 十八岁给我一个姑娘 by 冯唐 (z-lib.org).pdf
 │  -2147483648_-210000.webp
