@@ -1,0 +1,141 @@
+# 4.4 Mind sweep
+
+脑子里想啥呢老妹儿
+
+### Inbox to fast add
+
+[GTD MASTER LIST](4%204%20Mind%20sweep%204087de558220449cbdacf0bde35a089e/GTD%20MASTER%20LIST%20905d347210294c7e868552db8d2415fb.csv)
+
+### Trigger List
+
+- Projects started, not completed
+- Projects that need to be started
+- Things I’m waiting on from people
+    - Waiting for…
+        - Information
+        - Delegated tasks/projects
+        - Completions critical to projects
+        - Replies to:
+            - Letters
+            - Calls
+            - Requests
+            - Ordered items
+            - Items being repaired
+            - Tickets
+            - Decisions of others
+- Relationships
+    - Commitments to others
+        - Wife
+        - Family
+        - Friends
+        - Staff
+        - Boss
+    - Things to respond to
+        - WhatsApp threads
+        - Facebook messages
+        - Social Media
+        - E-Mails
+        - Post
+    - Gift giving occasions
+    - Social events
+- Health
+    - Nutrition
+        - Supplements
+    - Fitness
+        - Running
+        - Strength training
+        - Gear
+    - Sleep
+    - Meds
+    - Doctors
+- Finance
+    - People to pay back
+    - Accounts to open or close
+    - Budgeting
+    - Bills
+    - Insurance
+    - Creditcards
+    - Subscriptions
+    - Savings
+- Career & Job
+    - Networking
+    - Skills to learn
+    - Improvments
+    - How to go on
+    - Meetings that need to be set/requested
+- Planning/organizing
+    - Formal planning (goals, targets, objectives)
+    - Current projects (next stages)
+    - Upcoming projects
+    - Upcoming events
+    - Presentations
+    - Organizational structuring
+    - Changes in facilities
+    - Installation of new systems/equipment
+- Upcoming private events
+    - Special occasions
+    - Birthdays
+    - Anniversaries
+    - Weddings
+    - Graduations
+    - Holidays
+    - Travel
+    - Weekend trips
+    - Vacations
+    - Social events
+    - Cultural events
+    - Sporting events
+- Clothing
+    - Items to buy
+    - Laundry
+    - Items that need replacing
+    - Something for trash
+    - repair
+- Household
+    - Cooking
+    - Cleaning/tidying
+    - minimalism
+- Home improvement
+    - Decorations
+    - Artwork
+    - Painting
+    - Repairs
+    - minimalism
+- Travel
+    - Trips to plan
+    - Transport to book
+    - Accommodation to book
+- Leisure
+    - Books
+    - Restaurants
+    - Music
+    - Films
+    - Documentaries
+    - Podcasts
+    - Series
+    - Theatre
+    - Museums/Galleries
+    - Walks
+    - Tickets to book
+    - iPad
+    - Games
+- Personal grooming
+    - Haircuts
+    - Products to buy
+- General Minimalism
+- Charity
+- Self improvement
+    - Professional development
+        - Training/seminars
+        - Things to learn
+        - Things to look up
+        - Skills to practice/learn
+        - Tape/video training
+        - Resumes
+    - Outside education
+    - Research–need to find out about…
+    - Professional wardrobe
+- Productivity system
+    - Changes to trigger list
+
+[Michael大神教你如何做好年度回顾 ](4%204%20Mind%20sweep%204087de558220449cbdacf0bde35a089e/Michael%E5%A4%A7%E7%A5%9E%E6%95%99%E4%BD%A0%E5%A6%82%E4%BD%95%E5%81%9A%E5%A5%BD%E5%B9%B4%E5%BA%A6%E5%9B%9E%E9%A1%BE%204cee63aec82c4df58cbea00cbdc51bff.md)
