@@ -1,4 +1,4 @@
-# Data-life
+# Data-life  https://www.notion.so/blankseraph/Blank-Seraph-s-Home-1bfd49353d394f96a71e5e4dd5a2f0c8
  
 **GUIDES TO BE A FREELY AND FULLY DEVELOPED PEOPLE**
 
